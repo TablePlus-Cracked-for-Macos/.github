@@ -7,20 +7,20 @@
 
 It is a modern, native, and friendly tool to manage multiple databases including MySQL, PostgreSQL, SQLite, SQL Server, Redis, Cassandra.
 
-Luminar Neo kopen
+TablePlus free
 
-Luminar Neo lifetime
+TablePlus alternative
 
-Luminar Neo review
+TablePlus for Windows
 
-Luminar Neo download
+TablePlus download
 
-Luminar Neo price
+TablePlus login
 
-Luminar Neo Nederlands
+TablePlus for Mac
 
-Luminar Neo Trial
+TablePlus Linux
 
-Luminar Neo vs Lightroom
+TablePlus free alternative
 
 **This project provides a cracked version of TablePlus 6.0.0 Crack, enabling users to use the premium features without purchasing a license!**
